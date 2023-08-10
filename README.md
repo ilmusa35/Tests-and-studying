@@ -1,1 +1,1 @@
-Here is a files out of any categories or projects. Most of them used for test or learn somethink.
+Here are files outside of any categories or projects. Most of them were used for testing or learning purposes.
